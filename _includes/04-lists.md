@@ -1,1 +1,5 @@
-Replace this with a list of your favorite things.
+I love coding.
+I love chocolate, Ice-cream.
+Being Independent
+Sleeping
+Parents
